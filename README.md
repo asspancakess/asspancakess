@@ -26,7 +26,7 @@
 
 <details align="center">
 
-<summary> ${\textsf{\color{#ff3030}﹕  OK INFO IF YER LAZY TO CLICK MY LINKS. }}$ !! </summary
+<summary> ${\textsf{\color{#ff3030}﹕  OK INFO IF YER LAZY 2 CLICK MY LINKS. }}$ !! </summary
 
 ˋ°•*⁀➷ IF U INTERACT WIT ME N THERES A HIGH CHANCE IM UPSET. I JUST MASK LIKE ALOT SINCE I DO SUFFER FROM HORRID DEPRESSION N IM A FREQUENT MASKER.
 
