@@ -1,7 +1,7 @@
 
 <div align="center">
 
- ${\textsf{\color{#ff3030}WELCOME }}$  ${\textsf{\color{#300606}TO  }}$ ${\textsf{\color{#9f1111}MY GITHUB}}$
+ ${\textsf{\color{#ff3030}WELCOME }}$  ${\textsf{\color{#9f1111}TO  }}$ ${\textsf{\color{#ff3030}MY GITHUB}}$
 
  
 <div align="center">
