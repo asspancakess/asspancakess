@@ -6,7 +6,7 @@
  
 <div align="center">
 
- ${\textsf{\color{#0016ff}YOU CAN}}$  ${\textsf{\color{#1316c2}CALL ME }}$ ${\textsf{\color{#1316c2}ASS PANCAKES, SCOUT OR FLANKER ( MAINLY FLANKER/MUNDY DOE}}$
+ ${\textsf{\color{#0016ff}PLEASE}}$  ${\textsf{\color{#1316c2}READ MY INFO }}$ ${\textsf{\color{#1316c2}BEFORE INTERACTIN WIT ME.}}$
 
 
  
