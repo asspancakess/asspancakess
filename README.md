@@ -1,7 +1,7 @@
 
 <div align="center">
 
- ${\textsf{\color{#ff3030}WELCOME }}$  ${\textsf{\color{#9f1111}TO  }}$ ${\textsf{\color{#ff3030}MY GITHUB}}$
+ ${\textsf{\color{#ff3030}WELCOME }}$  ${\textsf{\color{#9f1111}TA  }}$ ${\textsf{\color{#ff3030}MY GITHUB}}$
 
  
 <div align="center">
@@ -22,7 +22,21 @@
 
 <div align="center">
 
+</details>
 
+<details align="center">
+
+<summary> ${\textsf{\color{#ff3030}﹕  OK INFO IF YER LAZY TO CLICK MY LINKS. }}$ !! </summary
+
+ˋ°•*⁀➷ IF U INTERACT WIT ME N THERES A HIGH CHANCE IM UPSET. I JUST MASK LIKE ALOT SINCE I DO SUFFER FROM HORRID DEPRESSION N IM A FREQUENT MASKER.
+
+ˋ°•*⁀➷ I WILL MOST LIKELY USE A TYPIN QUIRK AS I AM USIN MY MOST COMMON ONE RIGHT NOW. BUT I HAVE ALOT OF DIFFERENT TYPIN QUIRKS N IT DEPENDS ON MY MOOD/KINSHIFT.
+
+ˋ°•*⁀➷ I DO *NOT* LIKE INTERACTIN WIT ASS PANCAKE KIN DOUBLES OR YUMESHIPPERS. U ALL MAKE ME VERY UNCOMFORTABLE. 
+
+ˋ°•*⁀➷ PLEASE KEEP IN MIND I TAKE ALOT OF THINGS SERIOUSLY N I AM A QUITE AGGRESSIVE PERSON. 
+
+ˋ°•*⁀➷ AT TIMES I CAN ALSO BE REALLY MEAN BUT ITS MOSTLY TOWARDS MY FRIENDS IN A PLAYFUL WAY. *NEVER* TAKE ANYTHING I SAY SERIOUSLY SINCE MY HUMOR IS ALSO VERY DARK.
 
 </details>
 
@@ -31,7 +45,6 @@
 <summary> ${\textsf{\color{#ff3030}﹕  STAMPS }}$ !! </summary
 
  <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/c5162182639fdb968765948da2b79ae6/c6ed85cd4f2f3d6e-76/s640x960/669080f6267ea8232be393de811eaeda12f0f5e5.gifv"></a>
- 
   <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/c8da396b410ac90ac9082b81381ffa3a/843b931af0c96714-7e/s100x200/5476a6ed8596d2bab8438bc6e941a9c661d348ac.gifv"></a>
   <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/e703d33e259b9c5f63584afb73a240e8/38a055a3883c4449-ac/s100x200/24331c4b6cddfbbf746f5e18d12bf788790785b4.pnj"></a>
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/8f0160e27919f49a31cc9dba46a77134/9302e8d98e3659fc-6c/s250x400/d09d895747b6a0e07d2ea4826ccd254abd1bb654.pnj"></a>
