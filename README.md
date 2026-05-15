@@ -6,7 +6,7 @@
  
 <div align="center">
 
- ${\textsf{\color{#0016ff}PLEASE}}$  ${\textsf{\color{#1316c2}READ MY INFO }}$ ${\textsf{\color{#1316c2}BEFORE INTERACTIN WIT ME.}}$
+ ${\textsf{\color{#0016ff}PLEASE}}$  ${\textsf{\color{#1316c2}READ MY INFO }}$ ${\textsf{\color{#1316c2}B4 INTERACTIN WIT ME.}}$
 
 
  
