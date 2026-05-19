@@ -1,7 +1,9 @@
+<img width="1120" height="4" alt="image" src="https://github.com/user-attachments/assets/bf63775f-e005-4550-825f-2f5ec86ed93e" />
+
 
 <div align="center">
 
- ${\textsf{\color{#ff3030}WELCOME }}$  ${\textsf{\color{#9f1111}TA  }}$ ${\textsf{\color{#ff3030}MY GITHUB}}$
+ ${\textsf{\color{#ff3030}WELCOME }}$  ${\textsf{\color{#9f1111}2  }}$ ${\textsf{\color{#ff3030}MY GITHUB}}$
 
  
 <div align="center">
@@ -12,7 +14,7 @@
  
 <div align="center">
 
- ${\textsf{\color{#ff3030} -->  }}$     [MY ATA](https://flankersflankk.atabook.org)  ${\textsf{\color{#001a8a} -->  }}$     [MY STRAW](https://freakfortress.straw.page) ${\textsf{\color{#ff3030} -->  }}$     [MY LURK ME](https://scout.lurk.me/)
+ ${\textsf{\color{#ff3030} -->  }}$     [MY ATA](https://flankersflankk.atabook.org) ${\textsf{\color{#ff3030} -->  }}$     [MY LURK ME](https://scout.lurk.me/)
 
 
 
@@ -28,13 +30,11 @@
 
 <summary> ${\textsf{\color{#ff3030}﹕  OK INFO IF YER LAZY 2 CLICK MY LINKS. }}$ !! </summary
 
-ˋ°•*⁀➷ IF U INTERACT WIT ME N THERES A HIGH CHANCE IM UPSET. I JUST MASK LIKE ALOT.
+ˋ°•*⁀➷ IF U INTERACT WITH ME N THERES A HIGH CHANCE IM UPSET. I JUST MASK LIKE ALOT.
 
 ˋ°•*⁀➷ MEDISCOUT , SWORDVAN , SPEEDINGBULLET , AMERICAN AVIATORS , SCOUTCEST , SNIPERCEST , SNIPERSCOUTPAULING SHIPPERS INT. (PLEASE)
 
-ˋ°•*⁀➷ I LOVE MAKIN' FRIENDS OKAY PLEASE INT IF YER N MY FANDOMS N WANNA B FRIENDS JUS MAKE SURE U READ MY DNI IN MY STRAW.
-
-ˋ°•*⁀➷ IF YA SEE ME WALKIN ROUND THE MAP ON OFFLINE MODE OR SAT ON MY OWN ON OFFLINE MODE. PLEASE DO NOT INTERACT OR SIT WIT HME UNLESS I DO.
+ˋ°•*⁀➷ IF YA SEE ME WALKIN ROUND THE MAP ON OFFLINE MODE OR SAT ON MY OWN ON OFFLINE MODE. PLEASE DO NOT INTERACT OR SIT WITH ME UNLESS I DO.
 
 ˋ°•*⁀➷ I WILL MOST LIKELY USE A TYPIN QUIRK AS I AM USIN MY MOST COMMON ONE RIGHT NOW. BUT I HAVE ALOT OF DIFFERENT TYPIN QUIRKS N IT DEPENDS ON MY MOOD/KINSHIFT.
 
@@ -106,8 +106,6 @@
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/5571b7163f63f4e315ee1959aa354534/a204fb756d11bc20-21/s100x200/dbd50092de4a36b5fbbff6bc212f44dd5295d7de.gifv"></a>
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/56cbe6aa97ac4801ab4edbac76486e2f/a4bd96e78630b131-07/s100x200/dbd65d99af1d9eec6a0858c0c399e26f57800533.gifv"></a>
 
-
-
 </details>
 
 </div>
@@ -115,22 +113,22 @@
 <br/>
 <img width="520" height="280" alt="image" src="https://github.com/user-attachments/assets/dee857ad-7373-402e-a7a9-2be715f838be" />
 
-<br/>
 
 </details>
 
-<details align="center">
+</div>
 
-<summary> ${\textsf{\color{#0016ff}﹕  FRIEND STUFF OK WIP }}$ !! </summary
+<br/>
+<p align="center">
+ ${\textsf{\color{#ff3030}NO SPECIFIC DNI}}$  ${\textsf{\color{#9f1111}JUST UNDER 13 DNI }}$ ${\textsf{\color{#ff3030}INT ANYTIME (WITH CARE) UNLESS TOLD OTHERWISE}}$
 
-<a href="" target="_blank"><img width="300" src="https://github.com/user-attachments/assets/807705fa-0a44-41fc-ad32-de6e4dcab44b"></a>
-
-<a href="" target="_blank"><img width="300" src="https://github.com/user-attachments/assets/a7924663-553e-483f-b016-7a0fce93b7aa"></a>
-
-<a href="" target="_blank"><img width="300" src="https://github.com/user-attachments/assets/e057e979-88e7-415d-bd4c-c45899d35bac"></a>
-
-<a href="" target="_blank"><img width="300" src="https://github.com/user-attachments/assets/ac035efd-1ea1-4da8-8f69-3e560a5a8770"></a>
-
-<a href="" target="_blank"><img width="300" src="https://github.com/user-attachments/assets/b4e7cc25-c23b-4e02-a68a-3cc86d19a366"></a>
+ <p align="center">
+ ${\textsf{\color{#001c76}MY FRIENDS BELOW}}$
 
 
+<p align="center">
+    <a href="https://github.com/ScrapMyBrain">@ScrapMyBrain<a/>⠀<a href="https://github.com/decayingcrow">@decayingcrow<a/>⠀<a href="https://github.com/itoldyoudawg">@itoldyoudawg<a/>
+<a href="https://github.com/Moldypee">@Moldypee<a/>⠀<a href="https://github.com/fleshburn">@fleshburn<a/>⠀<a href="https://github.com/watcherbittes">@watcherbittes<a/>
+<a href="https://github.com/skwwigelf">@skwwigelf<a/>⠀<a href="https://github.com/CandiedWrath">@CandiedWrath<a/>⠀<a href="https://github.com/SuccessfulProcedure">@SuccessfulProcedure<a/>
+
+<img width="1120" height="4" alt="image" src="https://github.com/user-attachments/assets/bf63775f-e005-4550-825f-2f5ec86ed93e" />
