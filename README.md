@@ -123,12 +123,14 @@
  ${\textsf{\color{#ff3030}NO SPECIFIC DNI}}$  ${\textsf{\color{#9f1111}JUST UNDER 13 DNI }}$ ${\textsf{\color{#ff3030}INT ANYTIME (WITH CARE) UNLESS TOLD OTHERWISE}}$
 
  <p align="center">
- ${\textsf{\color{#001c76}MY FRIENDS BELOW}}$
+ ${\textsf{\color{#001c76}FAVOOMFS BELOW}}$
 
 
 <p align="center">
-    <a href="https://github.com/ScrapMyBrain">@ScrapMyBrain<a/>⠀<a href="https://github.com/decayingcrow">@decayingcrow<a/>⠀<a href="https://github.com/itoldyoudawg">@itoldyoudawg<a/>
-<a href="https://github.com/Moldypee">@Moldypee<a/>⠀<a href="https://github.com/fleshburn">@fleshburn<a/>⠀<a href="https://github.com/watcherbittes">@watcherbittes<a/>
-<a href="https://github.com/skwwigelf">@skwwigelf<a/>⠀<a href="https://github.com/CandiedWrath">@CandiedWrath<a/>⠀<a href="https://github.com/SuccessfulProcedure">@SuccessfulProcedure<a/>
+ 
+ <a href="https://github.com/ScrapMyBrain">@ScrapMyBrain<a/>⠀<a href="https://github.com/decayingcrow">@decayingcrow<a/>⠀<a href="https://github.com/itoldyoudawg">@itoldyoudawg<a/>
+<a href="https://github.com/Moldypee">@Moldypee<a/>⠀<a href="https://github.com/watcherbittes">@watcherbittes<a/>
+<a href="https://github.com/skwwigelf">@skwwigelf<a/>⠀<a href="https://github.com/fleshburn">@fleshburn<a/>
+<a href="https://github.com/CandiedWrath">@CandiedWrath<a/>⠀<a href="https://github.com/SuccessfulProcedure">@SuccessfulProcedure<a/> <a href="https://github.com/CandiedWrath">@CandiedWrath<a/>⠀<a href="https://github.com/CosmeticsLaire">CosmeticsLaire<a/>
 
 <img width="1120" height="4" alt="image" src="https://github.com/user-attachments/assets/bf63775f-e005-4550-825f-2f5ec86ed93e" />
