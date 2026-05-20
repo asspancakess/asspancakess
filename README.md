@@ -1,3 +1,5 @@
+<div align="center">
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=250&color=0007F7&width=435&lines=I+can't+stop+destroying+every+single+;thing+that+I+love+just+know+I'm+a;+liar+with+my+wounded+animal+act" alt="Typing SVG" /></a>
 
 
