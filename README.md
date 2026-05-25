@@ -136,6 +136,6 @@
  <a href="https://github.com/ScrapMyBrain">@ScrapMyBrain<a/>⠀<a href="https://github.com/decayingcrow">@decayingcrow<a/>⠀<a href="https://github.com/itoldyoudawg">@itoldyoudawg<a/>
 <a href="https://github.com/Moldypee">@Moldypee<a/>⠀<a href="https://github.com/watcherbittes">@watcherbittes<a/>
 <a href="https://github.com/skwwigelf">@skwwigelf<a/>⠀<a href="https://github.com/fleshburn">@fleshburn<a/>
-<a href="https://github.com/CandiedWrath">@CandiedWrath<a/>⠀<a href="https://github.com/SuccessfulProcedure">@SuccessfulProcedure<a/>⠀<a href="https://github.com/CosmeticsLaire">CosmeticsLaire<a/> ⠀<a href="https://github.com/kjselff">kjselff<a/>
+<a href="https://github.com/CandiedWraith">@CandiedWraith<a/>⠀<a href="https://github.com/SuccessfulProcedure">@SuccessfulProcedure<a/>⠀<a href="https://github.com/CosmeticsLaire">CosmeticsLaire<a/> ⠀<a href="https://github.com/kjselff">kjselff<a/>
 
 <img width="1120" height="4" alt="image" src="https://github.com/user-attachments/assets/bf63775f-e005-4550-825f-2f5ec86ed93e" />
